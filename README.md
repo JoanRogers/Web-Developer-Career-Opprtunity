@@ -1,2 +1,2 @@
-# Web-Developer-Career-Opprtunity
+# Web-Developer-Career-Opportunity
 Hello, I would like to share an employment opportunity with KSH Solutions for a Web Developer position located in Fort Bragg, NC.  If you or anyone who may be interested please visit our website at ksh1.com.  You will be able to view the job description on the Careers page and submit your resume.  Please contact me for more information at joan.rogers@ksh1.com.  Thank you in advance for sharing. 
